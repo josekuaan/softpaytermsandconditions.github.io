@@ -1,0 +1,1 @@
+# softpaytermsandconditions.github.io
